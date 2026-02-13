@@ -29,45 +29,46 @@ Eu sou mulher. Mulher é mulher. O que eu desejo é um homem forte, confiável, 
 
 Isso é instinto. É a natureza da fêmea. Por isso――
 
-私が〈女〉《そう》であるように、彼もまた〈男〉《そう》であるはずだという当たり前のことを、なぜ慮ることが出来なかったのか。
+Assim como eu sou 〈mulher〉《isso》, era óbvio que ele também era 〈homem〉《isso》——por que eu não consegui considerar algo tão simples?
 
+Eu digo que gosto de homens fortes. Digo isso com facilidade, com egoísmo, com a cabeça e a alma de uma mulher, falando a partir da lógica feminina.
 
-強い人が好きだと私は言う。簡単に、自分勝手に、女の頭と魂で、女の理屈を口にする。
+Por isso, 〈mulher〉《eu》 não entendia. Não entendia o quanto 〈homem〉《ele》 admirava a força, o quanto a desejava com sede.
 
-ゆえに〈女〉《わたし》は分かっていない。〈男〉《かれ》がどれだけ強さに憧れ、それを渇望していたかを。
+O sentimento que um homem deposita na força é loucura.
 
-強さにかける男の人の想いは狂気だ。
+Num nível que uma mulher simplesmente não consegue compreender, eles buscam com todo o corpo e toda a alma o título de “forte”. Eles sentem vergonha e ódio de seu eu fraco, a ponto de querer matá-lo.
 
-女の身では到底理解できない域で、彼らは強いという称号を全身全霊求めている。弱い自分を殺したいほど恥じ、憎んでいる。
+É assim que os homens são. E por isso eu me arrependo de uma gafe irreparável.
 
-それが男の人というものだから、私は取り返しのつかない失言を悔いるのだ。
+Por que eu disse que gosto de homens fortes?
 
-強い人が好きだなんて、なぜ私は言ったのだろう。
+Para aquele que queria se tornar mais forte do que qualquer um, como eu pude, com tamanha desfaçatez, dizer “seja forte”? Idiota——tão rasa.
 
-誰よりも強くなりたいと思っていたあの人に、強くあれだなんてよくもぬけぬけと、馬鹿――浅はかな。
+Para ele, isso era o mesmo que ouvir: “você é fraco”. E eu não posso mentir dizendo que não havia, em mim, essa percepção.
 
-そんなこと、彼にしてみればあなたは弱いと言われたも同然。事実私も、そうした認識をしていなかったなんて大嘘はつけない。
+Gosto de homens fortes.
+Torne-se forte.
 
-強い人が好き。強くなって。強くなければ男じゃない。
+Se não for forte, não é homem.
 
-強さ、強さ、呪いにも似たその言葉。いいや、あれは間違いなく、あのとき呪いと化したのだ。
+Força, força, palavras que mais pareciam uma maldição. Não… naquele momento, elas definitivamente se tornaram uma maldição.
 
-彼は変わる。強くなる。だけどそれと引き換えに、彼の素晴らしいところが消えていく。
+Ele muda. Ele se torna forte. Mas, em troca, as melhores partes dele começam a desaparecer.
 
-優しさだったり、面白さだったり、ふと気の抜けた午後、陽だまりで笑って語り合えるような、暖かい幸せの色彩……
+A gentileza. O senso de humor. As tardes distraídas em que ríamos e conversávamos sob a luz morna do sol… as cores suaves de uma felicidade aquecida.
 
-あらゆるものを犠牲にして、彼は唯一の望みに手を伸ばす。
+Sacrificando tudo isso, ele estende a mão para o seu único desejo.
 
-それを前に、私はどんな反応をすればよかったのか。
+E diante disso, o que eu deveria ter feito?
 
-笑って喜ぶなんて無理、出来ない。罪悪感と痛ましさに、胸が潰れそうだったから。
+Sorrir e comemorar? Impossível. Meu peito quase se esmagava sob o peso da culpa e da dor.
 
-泣いて止めるなんて無理、出来ない。だって彼にそうさせたのは、他ならぬ私自身なのだから。
+Chorar e tentar detê-lo? Também impossível. Porque quem o levou a isso fui eu mesma.
 
+Eu sei que é uma traição cruel. Dizer “torne-se forte” e depois sofrer quando ele tenta se tornar forte, é contraditório, não faz sentido. Para ele, deve ter sido como se eu tivesse puxado a escada de repente, um golpe traiçoeiro.
 
-ひどい裏切りだと自分でも思う。強くなれと言っておいて、強くなろうとすれば悲しむなんて、矛盾しているし理屈が立たない。彼にしてみれば、いきなり梯子を外されたような騙まし討ちでしかないだろう。
-
-だからきっと、それこそが厳然たる齟齬なのだ。
+E é justamente aí que reside a discrepância absoluta e incontestável entre nós.
 
 私は女で、彼は男。同じ人間でも、根本の質が異なる異性の違い。
 
