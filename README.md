@@ -235,121 +235,89 @@ Afogando-se na chuva torrencial negra, deixou escapar uma voz que mais parecia u
 
 
 　■■■■――――
-紡いだその名は、音を成さずに溶けていく。もう何処にもいない者の名は、ゆえに何の意味も発揮せず……
+O nome que ela fiou com tanto cuidado dissolveu-se sem sequer produzir som. E o nome de alguém que já não existe em parte alguma, por isso mesmo, não exerce significado algum…
 
-　だからこそ、刹那。
+Justamente por isso, naquele instante.
 
-「愛しているよ、水希」
+「Eu te amo, Mizuki」
 
+A Caos que veio para destruir tudo de Sera Mizuki escancarou a boca.
 
-　少女、〈世良水希〉《せらみずき》のすべてを破壊する〈混沌〉《べんぼう》が口を開けた。
+Uma rajada súbita, vestida de luz fulgurante.
 
-　輝光を纏った一陣の疾風。
+Rasgando o veneno que desabava e a fumaça negra que irrompia, houve alguém que atravessou o inferno de chamas escaldantes sem sequer hesitar.
 
-　降り注ぐ毒と噴き上がる黒煙を切り裂いて、灼熱の炎をものともせず駆け抜ける背中がある。
+Uma presença viril, tão altiva, tão digna, que fazia o peito doer de vontade de chorar.
 
-　それは雄々しく、泣きたくなるほど凛々しくて。
+「Levanta, Seraaaaa!
+Não desista, ainda não acabou!」
 
+No breu onde todos sucumbem e apodrecem, apenas ele permanece inquebrável. A luz de sua vontade férrea não diminuiu nem um átomo; e ao encarar de frente o desespero que avança como maré, quão ofuscante é sua figura.
 
-「立て、世良ァッ！
-　諦めるな、まだ終わってない！」
+Assim deve ser um herói. Assim deve ser um campeão.
 
+Se é um homem destinado a liderar, então não se curva ao destino, não importa o quão esmagadora seja a maré da derrota.
 
-　ただ一人、誰もが敗れ、朽ちていく闇の中で、この彼だけは折れていない。強靭な意志の光は今なお微塵も衰えず、押し寄せる絶望に真っ向対峙するその姿の、なんと輝かしいことだろう。
+Há pés que abrem o caminho. Há olhos que fitam o futuro sem vacilar. Enquanto existirem mãos capazes de agarrar a vitória, jamais consentirá com a ruína.
 
-　勇者、英雄、斯くあるべし。将たる漢であるのなら、どのような敗勢にあろうとも運命などには屈さない。
+Se ele, o mais forte, ainda está de pé, então é possível virar o jogo.
+Não é o fim. Ah, é isso mesmo. Nós… venceremos——
 
-　道を切り開く足がある。前を見据える〈眼〉《まなこ》がある。勝利を掴み取る手がある限り、断じて滅びなど〈肯〉《がえ》んじない。
+Como uma flor que floresce em loucura, o projétil repelido de frente se despedaçou na noite, espalhando-se como pétalas em estilhaços.
 
+E não foi só isso, o próprio canhão principal explodiu, e a metade superior do encouraçado foi limpa e completamente varrida pelos ares. Que tal calamidade tenha sido causada pelo simples brandir de uma única mão de alguém que ainda pode ser chamado de garoto… só há uma palavra para isso: sonho.
 
-　最強の彼がいるのなら、まだ巻き返せる。終わりじゃない。ああそうだとも自分たちは勝つのだと――
+Mas isso é sob o ponto de vista de pessoas comuns. Mizuki compreendia exatamente que tipo de ofensiva e defensiva havia ocorrido naquele instante.
 
+Primeiro, do lado inimigo, a substância chamada canhão principal do encouraçado foi manipulada à vontade e remodelada pela dorma sōhō.
 
-　〈危〉《 、》〈う〉《 、》〈く〉《 、》〈思〉《 、》〈い〉《 、》〈か〉《 、》〈け〉《 、》〈て〉《 、》〈し〉《 、》〈ま〉《 、》〈っ〉《 、》〈た〉《 、》〈こ〉《 、》〈と〉《 、》〈に〉《 、》、〈水〉《 、》〈希〉《 、》〈は〉《 、》〈ま〉《 、》〈た〉《 、》〈し〉《 、》〈て〉《 、》〈も〉《 、》〈悲〉《 、》〈嘆〉《 、》〈す〉《 、》〈る〉《 、》〈の〉《 、》〈だ〉《 、》。
+Além disso, caso ele tivesse esquivado em vez de repelir, o disparo certamente teria perseguido o alvo infinitamente até capturá-lo. A realização de tal alcance anômalo só pode ser atribuída à Disparo do Juhou.
 
-　炎上する戦艦の主砲が軋みをあげて旋回する。物理的には機能を失っているはずなのに、子供が玩具を無理矢理扱っているかのごとく、それは壊れながらも作動した。
+Em outras palavras, o princípio que funde dois sonhos, “criar” e “lançar”, é o que compõe o ataque de agora.
 
-　照準は疾走する彼に向けて。射角の外に出ようとも、毒蛇のように砲身がしなり、曲がって追いかける。
+Em contrapartida, o que ele utilizou para interceptá-lo foi a dureza do Junhou e a rigidez do Gekihou.
 
-　常軌を逸した光景だが、この程度なんら驚くには値しない。この艦、いいやこの戦域は、丸ごと〈邯鄲〉《かんたん》に呑まれているのだ。ならばいかなる不条理でも、支配者の意志一つで実現するのが夢の理。
+Naturalmente, é impossível para um humano de carne e osso repelir artilharia. Para concretizar tal absurdo, ele revestiu-se de um sonho que fortalece o corpo tanto em força muscular quanto em resistência.
 
-　そう、これは世界を侵す〈悪い夢〉《ナイトメア》。発生源を潰さぬ限り、永劫覚めることはない。
+E mais, sobrepondo ainda o Kaihō no Hō, capaz de desmantelar e anular o sonho de outros, ele conseguiu repelir o ataque com perfeição absoluta.
 
-　もはや戯画的なほどに曲がりくねった戦艦主砲が、炎の轟哮を迸らせた。
+Embora ambos utilizem a mesma Lei chamada hadan, os princípios técnicos tecidos aqui foram uma combinação dupla contra uma combinação tripla. Quem demonstrou a arte mais refinada foi o homem da esperança que trilha o mesmo caminho que Mizuki, este último.
 
-　この状態で暴発もせずに発射されたということは、対処に真っ当な理屈が通用しないことを意味している。たとえ山を盾にしようと、砲弾は幻のごとくすり抜けるに違いない。
+Ainda assim, ela não acredita nem por um segundo que a situação atual seja favorável ao nosso exército.
 
+Se foi necessário recorrer a uma técnica de alto nível para lidar com uma de baixo nível, isso significa que existe uma diferença decisiva no poder de ambos.
 
-　すなわち、現実の手段で防ぐことは絶対不可能。
+Pois——
 
-　夢と相対するからには、己も夢にならねばならない。
+Aquele homem, de pé sobre a base do canhão principal que fora obliterada, olhando-nos de cima… não sofreu sequer o menor coceira. Nem dor. Nem arranhão.
 
-　だから今、彼はここに自らの〈理想〉《ユメ》を抜刀するのだ。
+No coração de um inferno tão abrasador que até o aço ferve, ele deixa o grande manto chicotear ao vento das ondas de calor enquanto distorce os lábios na curva de uma lua crescente.
 
-　高速で編まれる神秘の〈御業〉《みわざ》は、水希がこれまで見た何よりも整然と淀みなく、この上なく静かでありながらも激しく熱いものだった。
+Ele está rindo. Não, está rindo com escárnio.
 
-　鋼の理性と烈火の激情――彼を象徴する二つの属性は、心の燃焼を非常に高回転で行えることを証明している。他の者では理解も及ばぬ域の夢を思い描き、その巨大さに潰されないまま動かす器を持っているのだ。
+Como se nos desprezasse, dizendo “é só isso?”, chamando-nos de fracos, fracos, como quem exibe a própria força com orgulho.
 
-　今なお絶望を認めない彼の魂が有する熱量は、たかだか戦艦主砲の一撃ごとき、なんら恐れるものではない。
+Como se proclamasse que, sendo forte, tudo pode ser conquistado.
 
-　狂い咲く花のように、真っ向弾かれた砲弾が夜に木っ端と散華した。
+「Aa……」
 
-　のみならず主砲そのものが爆裂し、戦艦の上半分が綺麗さっぱり吹き飛ばされる。この事態を引き起こしたのが、まだ少年とも言える人物の片手一振りによるものだとは、まさしく夢と言うしかない。
+Força. O que significa ser forte?
 
+Esquecendo até a dor do corpo que range sob pressão, Mizuki murmura, e, no instante seguinte, uma maldição passa a dilacerar seu coração.
 
-　だが、それは常人の目から見た話であって、水希には今の刹那にどういう攻防が成されたかが分かっていた。
+Ela sabe. Se Aquilo não for detido aqui, este mundo será atirado ao purgatório, esse futuro desesperador é inevitável.
 
-　まず敵手側――戦艦主砲という物質を意のままに操り、作り変えたのは〈創法〉《そうほう》の〈形〉《ぎょう》。
+E, mais cruel ainda, existe a realidade impiedosa de que evitar isso é impossível.
 
-　加え、もし弾くのではなく躱していれば、砲は標的を捉えるまで無限に追尾したに違いなく、そうした異常な射程距離を実現させたのは〈咒法〉《じゅほう》の〈射〉《しゃ》に他ならない。
+Como uma verdade no nível da aritmética ensinada às crianças, Mizuki já enxerga o desfecho.
 
+Se força é o poder de fazer prevalecer a própria vontade, então, nesse confronto direto, não existe ninguém capaz de vencer Aquilo. Ela pode afirmar isso com absoluta convicção.
 
-　つまり、“創る”と“飛ばす”という二つの夢を融合させた理が、今の攻撃を成している。
+Não se trata da firmeza dos sentimentos. Nem da intensidade da chama interior. Ainda que, mesmo nesses aspectos, Aquilo seja absurdamente fora de escala… o general de nosso exército, que ainda não se quebrou, ao menos na batalha de espírito não está perdendo.
 
-　対して、それを迎撃した彼が用いたのは〈楯法〉《じゅんほう》の〈堅〉《けん》と〈戟法〉《げきほう》の〈剛〉《ごう》。
+Se for ele, não, se for apenas ele, então já alcançou o domínio onde pode encarar aquele monstro de frente. Em termos de categoria, de estatura existencial, ele não é inferior.
 
-　言うまでもなく生身の人間が火砲を弾くなど不可能だから、その不条理を実現するため、膂力と耐久力という両面で肉体を強化する夢を纏った。
-
-　さらに言えば、他者の夢を解体し、無効化する〈解法〉《かいほう》の〈崩〉《ほう》をも重ねた上で、完璧に弾き返してみせたのだ。
-
-
-　邯鄲という同じ法を用いた上で、ここに両者が紡いだ術理は二重複合と三重複合。より高度な芸を見せたのは水希と道を同じくする希望の彼――後者だが、それをもって現状が我軍に有利であるなどと、彼女はまったく思っていない。
-
-　低位の技に対処するため、高位の技が必要だったということは、すなわち両者の力に決定的な開きがあることを意味している。
-
-
-　なぜならば――
-
-　吹き飛ばされた主砲台座の上に立ち、こちらを見下ろすあの男は何の〈痛痒〉《つうよう》も受けていない。
-
-　鋼鉄すら沸騰する灼熱地獄の只中で、吹き荒れる熱波に大外套を翻しながら口元を弦月の形に歪めている。
-
-
-　笑っている。嗤っているのだ。
-
-　そんなものかと見下して、弱い弱いと己の強さを誇るように。
-
-　強ければすべてが手に入るとでも言うかのごとく。
-
-「あぁ……」
-
-
-　強さ。強いとは何だろう。軋む身体の痛みも忘れ、呟いた水希の心を今度は呪いが責め苛む。
-
-　分かっているのは、ここでアレを止めない限りこの世が煉獄に叩き込まれるという絶望的な未来。
-
-　そして、それを避けるのは不可能だという情け容赦ない現実。
-
-　子供が習う算学にも等しいレベルの真理として、水希はその結末が見えている。
-
-　己が意を通すための力が強さだと言うのなら、その競り合いでアレに勝てる者はいない。そう確信することが出来るのだ。
-
-　それは想いの強固さ、熱の激しさという意味ではない。そうした面でもアレが度外れているのは確かだが、今なお折れていない我軍の将は、少なくとも気力の勝負で負けてなどはいないから。
-
-　彼ならば、いいや彼だけは、あの怪物と真っ向対峙できる領域に達しているのだ。格という意味でなら、決して劣っているわけではない。
-
-
-　だが、しかしだが、駄目なのだ。
+Mas, ainda assim, não é o suficiente.
 
 「　　　
 　　　　」
